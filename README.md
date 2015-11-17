@@ -1,1 +1,1 @@
-pramod vs pari
+pramod weds parimala
